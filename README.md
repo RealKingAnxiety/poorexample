@@ -1,1 +1,1 @@
-The goal of this project is to leave testimonials on it.
+Take over the world or something (yippee)
